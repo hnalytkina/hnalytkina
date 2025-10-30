@@ -6,7 +6,6 @@
 - i usually at the spawn, bakery and soemtimes docks
 - english isnt my first language so yuhh i make a lot of mistakes sorry.
 - i always afk or offtab for some reasons too! so whisp or add me to int
-- i love hamsters ok bye
 - i have religious trauma so dont ever mention anything abt ur damn god! (not hating but pls dont)
-  
+- i love hamsters ok bye
 ![](https://files.catbox.moe/ljoy5z.jpg)
